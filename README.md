@@ -19,4 +19,4 @@
 如果你在寻找一个真正值得收藏的日本AV免费在线观看平台，这里将是你的最佳选择。记得将本站加入书签，每天都有新片上线，让你不错过每一部高质量的日本成人视频。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/5340654 ）</span>
